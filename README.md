@@ -1,0 +1,1 @@
+O curso está sendo muito bom. Está me desafiando e trazendo de volta um sentimento bom de estar me desenvolvendo a cada dia.
